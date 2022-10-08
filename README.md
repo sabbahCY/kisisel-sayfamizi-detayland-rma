@@ -1,0 +1,1 @@
+# kisisel-sayfamizi-detayland-rma
